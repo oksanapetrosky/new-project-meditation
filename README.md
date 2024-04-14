@@ -1,1 +1,1 @@
-# My project "Deep relaxation"
+# My project "Carrie's destiny"
